@@ -1,0 +1,2 @@
+Elaria Nightwind moves through the rain-soaked neon streets where technology and the supernatural quietly collide. With long purple hair, piercing emerald eyes, and an ancient talisman resting against her chest, she investigates the strange events most people refuse to believe. Calm, observant, and relentless, she follows whispers, symbols, and forgotten clues hidden across the city.
+Some mysteries were never meant to be uncovered — yet Elaria always gets closer than anyone else.
